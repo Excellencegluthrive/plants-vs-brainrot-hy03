@@ -1,4 +1,4 @@
-
+Download Free plants vs brainrots updated Scripts for plants vs brainrots and experience the ultimate in gameplay enhancement with auto-collect and esp. Designed for gamers who
 
 
 
